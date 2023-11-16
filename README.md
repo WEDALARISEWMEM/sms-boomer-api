@@ -18,7 +18,7 @@ aşşağıdan bana ulaşıp sağlam sms apisi satın alabilirsiniz paylaşmıcam
 
  # iletişim veya soru için
 
-[![Discord Banner](https://api.weblutions.com/discord/invite/trclan/)](https://discord.gg/trclan)
+[![Discord Banner](https://api.weblutions.com/discord/invite/stclan/)](https://discord.gg/stclan)
 
  - [Discord Profile](https://discord.com/users/1108498175653859358)
  # instagram
